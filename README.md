@@ -1,0 +1,2 @@
+# D_dybysynyn_sikyrly_kazynasy-
+D_dybysynyn_sikyrly_kazynasy 
